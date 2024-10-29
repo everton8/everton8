@@ -1,2 +1,2 @@
-## meu nome é everton gosto de jogar bola e jogar free fire
+## meu nome é Everton Kauã gosto de jogar bola e jogar free fire
 
